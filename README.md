@@ -1,6 +1,6 @@
 **THAFFYNE** 🫀
 - _Nail Designer_
-- rata de acaemia
+- rata de academia
 - amante de animais
 - insuportavel 🙌
   💅
